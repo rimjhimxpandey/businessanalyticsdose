@@ -21,3 +21,17 @@ Start before you feel ready. Progress beats perfection.
 
 ### Tags
 #masters #businessanalytics #career #learning
+
+## Day 2 | 25 July 2026
+
+### Topic
+Your Master's is much more than lectures.
+
+### What I Learned
+I initially thought getting good grades would be enough. But over time, I realized that networking events, workshops, certifications, career fairs, volunteering, and LinkedIn all played a huge role in building my profile. These experiences helped me develop skills that weren't taught in the classroom.
+
+### Advice
+Attend opportunities even when they seem optional. Sometimes the biggest career opportunities come from experiences outside the classroom.
+
+### Tags
+#masters #career #networking #businessanalytics
