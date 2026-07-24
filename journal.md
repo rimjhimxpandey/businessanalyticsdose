@@ -2,7 +2,7 @@
 
 A collection of things I wish I knew before and during my MSc in Business Analytics.
 
-The goal isn't to write every detail of my day—just one lesson, insight, mistake, or tip that could help someone else.
+The goal isn't to write every detail of my day just one lesson, insight, mistake, or tip that could help someone else.
 
 ---
 
@@ -28,7 +28,7 @@ Start before you feel ready. Progress beats perfection.
 Your Master's is much more than lectures.
 
 ### What I Learned
-I initially thought getting good grades would be enough. But over time, I realized that networking events, workshops, certifications, career fairs, volunteering, and LinkedIn all played a huge role in building my profile. These experiences helped me develop skills that weren't taught in the classroom.
+I initially thought getting good grades would be enough. But over time, I realized that networking events, workshops, certifications, career fairs, volunteering, and LinkedIn all played a huge role in[...]
 
 ### Advice
 Attend opportunities even when they seem optional. Sometimes the biggest career opportunities come from experiences outside the classroom.
