@@ -28,7 +28,7 @@ Start before you feel ready. Progress beats perfection.
 Your Master's is much more than lectures.
 
 ### What I Learned
-I initially thought getting good grades would be enough. But over time, I realized that networking events, workshops, certifications, career fairs, volunteering, and LinkedIn all played a huge role in[...]
+I initially thought getting good grades would be enough. But over time, I realized that networking events, workshops, certifications, career fairs, volunteering, and LinkedIn all played a huge role in my journey.
 
 ### Advice
 Attend opportunities even when they seem optional. Sometimes the biggest career opportunities come from experiences outside the classroom.
