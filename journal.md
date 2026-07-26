@@ -28,7 +28,7 @@ Start before you feel ready. Progress beats perfection.
 Your Master's is much more than lectures.
 
 ### What I Learned
-I initially thought getting good grades would be enough. But over time, I realized that networking events, workshops, certifications, career fairs, volunteering, and LinkedIn all played a huge role in my journey.
+I initially thought getting good grades would be enough. But over time, I realized that networking events, workshops, certifications, career fairs, volunteering, and LinkedIn all played a huge role in shaping my career trajectory and personal growth. The classroom is just one part of the puzzle. These experiences outside the traditional academic setting have given me real-world insights, professional connections, and skills that no lecture could fully provide.
 
 ### Advice
 Attend opportunities even when they seem optional. Sometimes the biggest career opportunities come from experiences outside the classroom.
@@ -46,12 +46,12 @@ One of the first things I did after joining the University of Galway was express
 
 At that point, I didn't know exactly where it would lead. I simply knew I wanted to get involved beyond academics and make the most of my Master's journey.
 
-Looking back, that one decision opened doors to meeting students from different countries, representing the university at events, improving my communication skills, and building confidence. It also be[...]
+Looking back, that one decision opened doors to meeting students from different countries, representing the university at events, improving my communication skills, and building confidence. It also connected me with like-minded individuals who shared similar ambitions and values, and provided opportunities I wouldn't have had if I had waited until I felt completely prepared.
 
 Sometimes the opportunities that shape your journey aren't part of your course, they're the ones you choose to pursue.
 
 ### Advice
-Don't wait until your second semester or until you feel "settled." If something genuinely interests you, apply for it. The earlier you step out of your comfort zone, the more rewarding your Master[...]
+Don't wait until your second semester or until you feel "settled." If something genuinely interests you, apply for it. The earlier you step out of your comfort zone, the more rewarding your Master's experience will be. The best growth happens when you embrace challenges before you feel ready.
 
 ### Tags
 #GlobalStudentAmbassador #UniversityOfGalway #MastersJourney #Leadership #BusinessAnalytics
