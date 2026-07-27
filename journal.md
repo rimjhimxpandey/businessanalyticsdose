@@ -28,7 +28,7 @@ Start before you feel ready. Progress beats perfection.
 Your Master's is much more than lectures.
 
 ### What I Learned
-I initially thought getting good grades would be enough. But over time, I realized that networking events, workshops, certifications, career fairs, volunteering, and LinkedIn all played a huge role in shaping my career trajectory and personal growth. The classroom is just one part of the puzzle. These experiences outside the traditional academic setting have given me real-world insights, professional connections, and skills that no lecture could fully provide.
+I initially thought getting good grades would be enough. But over time, I realized that networking events, workshops, certifications, career fairs, volunteering, and LinkedIn all played a huge rol[...]
 
 ### Advice
 Attend opportunities even when they seem optional. Sometimes the biggest career opportunities come from experiences outside the classroom.
@@ -46,12 +46,12 @@ One of the first things I did after joining the University of Galway was express
 
 At that point, I didn't know exactly where it would lead. I simply knew I wanted to get involved beyond academics and make the most of my Master's journey.
 
-Looking back, that one decision opened doors to meeting students from different countries, representing the university at events, improving my communication skills, and building confidence. It also connected me with like-minded individuals who shared similar ambitions and values, and provided opportunities I wouldn't have had if I had waited until I felt completely prepared.
+Looking back, that one decision opened doors to meeting students from different countries, representing the university at events, improving my communication skills, and building confidence. It als[...]
 
 Sometimes the opportunities that shape your journey aren't part of your course, they're the ones you choose to pursue.
 
 ### Advice
-Don't wait until your second semester or until you feel "settled." If something genuinely interests you, apply for it. The earlier you step out of your comfort zone, the more rewarding your Master's experience will be. The best growth happens when you embrace challenges before you feel ready.
+Don't wait until your second semester or until you feel "settled." If something genuinely interests you, apply for it. The earlier you step out of your comfort zone, the more rewarding your Master[...]
 
 ### Tags
 #GlobalStudentAmbassador #UniversityOfGalway #MastersJourney #Leadership #BusinessAnalytics
@@ -64,13 +64,13 @@ Prepare for your part-time job before you actually need one.
 ### What I Learned
 One of the biggest lessons from my journey was that getting a part-time job starts long before your first interview.
 
-As soon as I landed in Ireland, I focused on completing all the essentials—getting my Stamp 2 permission, IRP card, PPS Number, Leap Card, Revenue registration, and everything required to settle in. Having these ready meant I could concentrate on job hunting instead of paperwork.
+As soon as I landed in Ireland, I focused on completing all the essentials—getting my Stamp 2 permission, IRP card, PPS Number, Leap Card, Revenue registration, and everything required to settle[...]
 
 I also prepared an Irish-style CV before applying anywhere.
 
-My job search wasn't limited to one platform. I regularly checked Indeed, visited the career pages of supermarkets and retail stores, joined WhatsApp and Facebook groups, followed local pages on Instagram, and even walked into stores whenever I spotted a "We're Hiring" poster.
+My job search wasn't limited to one platform. I regularly checked Indeed, visited the career pages of supermarkets and retail stores, joined WhatsApp and Facebook groups, followed local pages on I[...]
 
-The biggest thing I learned? Finding a part-time job is often a mix of preparation, consistency, and timing. Luck plays a role, but being ready when an opportunity appears makes all the difference.
+The biggest thing I learned? Finding a part-time job is often a mix of preparation, consistency, and timing. Luck plays a role, but being ready when an opportunity appears makes all the difference[...]
 
 ### Advice
 
@@ -87,3 +87,42 @@ The more places you look, the more opportunities you'll find.
 ### Tags
 
 #PartTimeJob #Ireland #InternationalStudent #MastersJourney #CareerTips
+
+---
+
+## Day 5 | 28 July 2026
+
+### Topic
+Sometimes your first job isn't your dream job, but it's the one that changes everything.
+
+### What I Learned
+
+When I arrived in Ireland, I had a clear picture of the kind of part-time job I wanted.
+
+Coming from a vegetarian background, I wasn't comfortable working around meat or food preparation. I was mainly looking for roles in bookstores, retail stores, supermarkets, customer service, billing, stock replenishment, or anything where I could interact with customers without handling food.
+
+Over the first few weeks, I applied everywhere. I attended multiple interviews—the first one I remember was at Tesco (Ballybane). Although I wasn't selected, every interview taught me something new and made me more confident for the next one.
+
+At the same time, I was making the most of university opportunities. I became a Global Student Ambassador, where I helped with campus tours, student surveys, and university events whenever required. I also joined LIFT Ireland as a Facilitator to improve my leadership and communication skills. While both experiences were incredibly rewarding, they weren't a regular source of income.
+
+I still needed a stable part-time job to support my living expenses.
+
+Towards the end of October 2025, I came across a hiring advertisement for Subway. Honestly, it wasn't the kind of job I had imagined myself doing, but after weeks of searching, I decided to give it a chance.
+
+I called the number on the advertisement, was invited for an interview, prepared well, and fortunately, everything went smoothly. After successfully completing my trial shifts, I was selected to join the team.
+
+The restaurant in Salthill was a brand-new franchise, so I first received my training at the Newcastle branch before moving to the newly opened store.
+
+Ironically, my first job in Ireland turned out to be in a sandwich shop—the one type of role I had initially hoped to avoid. It was also my first time handling meat. I was nervous at first, but it wasn't as difficult as I had imagined. With time, I adapted, learned, and became comfortable doing the job professionally.
+
+Looking back, saying "yes" to an opportunity outside my comfort zone became one of the most important decisions of my journey.
+
+### Advice
+
+Don't reject an opportunity just because it isn't your ideal job.
+
+Your first job doesn't have to define your career—it simply has to help you take your first step. Every experience teaches you something, builds resilience, and opens doors to new opportunities.
+
+### Tags
+
+#PartTimeJob #Subway #InternationalStudent #CareerJourney #BusinessAnalytics #Ireland
