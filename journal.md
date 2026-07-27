@@ -28,7 +28,7 @@ Start before you feel ready. Progress beats perfection.
 Your Master's is much more than lectures.
 
 ### What I Learned
-I initially thought getting good grades would be enough. But over time, I realized that networking events, workshops, certifications, career fairs, volunteering, and LinkedIn all played a huge rol[...]
+I initially thought getting good grades would be enough. But over time, I realized that networking events, workshops, certifications, career fairs, volunteering, and LinkedIn all played a huge role in shaping my career trajectory and personal growth. The classroom is just one part of the puzzle. These experiences outside the traditional academic setting have given me real-world insights, professional connections, and skills that no lecture could fully provide.
 
 ### Advice
 Attend opportunities even when they seem optional. Sometimes the biggest career opportunities come from experiences outside the classroom.
@@ -46,12 +46,12 @@ One of the first things I did after joining the University of Galway was express
 
 At that point, I didn't know exactly where it would lead. I simply knew I wanted to get involved beyond academics and make the most of my Master's journey.
 
-Looking back, that one decision opened doors to meeting students from different countries, representing the university at events, improving my communication skills, and building confidence. It als[...]
+Looking back, that one decision opened doors to meeting students from different countries, representing the university at events, improving my communication skills, and building confidence. It also connected me with like-minded individuals who shared similar ambitions and values, and provided opportunities I wouldn't have had if I had waited until I felt completely prepared.
 
 Sometimes the opportunities that shape your journey aren't part of your course, they're the ones you choose to pursue.
 
 ### Advice
-Don't wait until your second semester or until you feel "settled." If something genuinely interests you, apply for it. The earlier you step out of your comfort zone, the more rewarding your Master[...]
+Don't wait until your second semester or until you feel "settled." If something genuinely interests you, apply for it. The earlier you step out of your comfort zone, the more rewarding your Master's experience will be. The best growth happens when you embrace challenges before you feel ready.
 
 ### Tags
 #GlobalStudentAmbassador #UniversityOfGalway #MastersJourney #Leadership #BusinessAnalytics
@@ -64,13 +64,13 @@ Prepare for your part-time job before you actually need one.
 ### What I Learned
 One of the biggest lessons from my journey was that getting a part-time job starts long before your first interview.
 
-As soon as I landed in Ireland, I focused on completing all the essentials—getting my Stamp 2 permission, IRP card, PPS Number, Leap Card, Revenue registration, and everything required to settle[...]
+As soon as I landed in Ireland, I focused on completing all the essentials—getting my Stamp 2 permission, IRP card, PPS Number, Leap Card, Revenue registration, and everything required to settle in. Having these ready meant I could concentrate on job hunting instead of paperwork.
 
 I also prepared an Irish-style CV before applying anywhere.
 
-My job search wasn't limited to one platform. I regularly checked Indeed, visited the career pages of supermarkets and retail stores, joined WhatsApp and Facebook groups, followed local pages on I[...]
+My job search wasn't limited to one platform. I regularly checked Indeed, visited the career pages of supermarkets and retail stores, joined WhatsApp and Facebook groups, followed local pages on Instagram, and even walked into stores whenever I spotted a "We're Hiring" poster.
 
-The biggest thing I learned? Finding a part-time job is often a mix of preparation, consistency, and timing. Luck plays a role, but being ready when an opportunity appears makes all the difference[...]
+The biggest thing I learned? Finding a part-time job is often a mix of preparation, consistency, and timing. Luck plays a role, but being ready when an opportunity appears makes all the difference.
 
 ### Advice
 
@@ -88,7 +88,6 @@ The more places you look, the more opportunities you'll find.
 
 #PartTimeJob #Ireland #InternationalStudent #MastersJourney #CareerTips
 
----
 
 ## Day 5 | 28 July 2026
 
