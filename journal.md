@@ -28,7 +28,7 @@ Start before you feel ready. Progress beats perfection.
 Your Master's is much more than lectures.
 
 ### What I Learned
-I initially thought getting good grades would be enough. But over time, I realized that networking events, workshops, certifications, career fairs, volunteering, and LinkedIn all played a huge rol[...]
+I initially thought getting good grades would be enough. But over time, I realized that networking events, workshops, certifications, career fairs, volunteering, and LinkedIn all played a huge role in shaping my opportunities and skills beyond the classroom. Through workshops I learned practical tools and techniques, career fairs introduced me to companies hiring students for internships and graduate roles, and networking events helped me build relationships that later turned into mentorship and referrals.
 
 ### Advice
 Attend opportunities even when they seem optional. Sometimes the biggest career opportunities come from experiences outside the classroom.
@@ -46,12 +46,12 @@ One of the first things I did after joining the University of Galway was express
 
 At that point, I didn't know exactly where it would lead. I simply knew I wanted to get involved beyond academics and make the most of my Master's journey.
 
-Looking back, that one decision opened doors to meeting students from different countries, representing the university at events, improving my communication skills, and building confidence. It als[...]
+Looking back, that one decision opened doors to meeting students from different countries, representing the university at events, improving my communication skills, and building confidence. It also helped me develop leadership experience, event organisation skills, and a small portfolio of practical achievements I could mention in job applications.
 
 Sometimes the opportunities that shape your journey aren't part of your course, they're the ones you choose to pursue.
 
 ### Advice
-Don't wait until your second semester or until you feel "settled." If something genuinely interests you, apply for it. The earlier you step out of your comfort zone, the more rewarding your Master[...]
+Don't wait until your second semester or until you feel "settled." If something genuinely interests you, apply for it. The earlier you step out of your comfort zone, the more rewarding your Master's will be — you learn faster, meet more people, and open up unexpected pathways.
 
 ### Tags
 #GlobalStudentAmbassador #UniversityOfGalway #MastersJourney #Leadership #BusinessAnalytics
@@ -64,13 +64,13 @@ Prepare for your part-time job before you actually need one.
 ### What I Learned
 One of the biggest lessons from my journey was that getting a part-time job starts long before your first interview.
 
-As soon as I landed in Ireland, I focused on completing all the essentials—getting my Stamp 2 permission, IRP card, PPS Number, Leap Card, Revenue registration, and everything required to settle[...]
+As soon as I landed in Ireland, I focused on completing all the essentials—getting my Stamp 2 permission, IRP card, PPS Number, Leap Card, Revenue registration, and everything required to settle in and be legally able to work and live comfortably. I also sorted practical things like opening a bank account, registering with a GP, and learning local transport routes to make job search logistics easier.
 
 I also prepared an Irish-style CV before applying anywhere.
 
-My job search wasn't limited to one platform. I regularly checked Indeed, visited the career pages of supermarkets and retail stores, joined WhatsApp and Facebook groups, followed local pages on I[...]
+My job search wasn't limited to one platform. I regularly checked Indeed, visited the career pages of supermarkets and retail stores, joined WhatsApp and Facebook groups, followed local pages on Instagram, and used the university career portal. Combining online searches with in-person visits (walking into shops and asking if they're hiring) made a big difference.
 
-The biggest thing I learned? Finding a part-time job is often a mix of preparation, consistency, and timing. Luck plays a role, but being ready when an opportunity appears makes all the difference[...]
+The biggest thing I learned? Finding a part-time job is often a mix of preparation, consistency, and timing. Luck plays a role, but being ready when an opportunity appears makes all the difference — having documents ready, an up-to-date CV, and a basic plan for interviews means you can act fast when a role appears.
 
 ### Advice
 
@@ -98,29 +98,29 @@ Sometimes your first job isn't your dream job, but it's the one that changes eve
 
 When I arrived in Ireland, I had a clear picture of the kind of part-time job I wanted.
 
-Coming from a vegetarian background, I wasn't comfortable working around meat or food preparation. I was mainly looking for roles in bookstores, retail stores, supermarkets, customer service, bil[...]
+Coming from a vegetarian background, I wasn't comfortable working around meat or food preparation. I was mainly looking for roles in bookstores, retail stores, supermarkets, customer service, and library or admin positions where food handling would not be required.
 
-Over the first few weeks, I applied everywhere. I attended multiple interviews—the first one I remember was at Tesco (Ballybane). Although I wasn't selected, every interview taught me something[...]
+Over the first few weeks, I applied everywhere. I attended multiple interviews—the first one I remember was at Tesco (Ballybane). Although I wasn't selected, every interview taught me something about local expectations, interview etiquette, and how to present myself. Each rejection was an opportunity to refine my answers and build confidence.
 
-At the same time, I was making the most of university opportunities. I became a Global Student Ambassador, where I helped with campus tours, student surveys, and university events whenever requir[...]
+At the same time, I was making the most of university opportunities. I became a Global Student Ambassador, where I helped with campus tours, student surveys, and university events whenever required. These roles gave me experience in public speaking, coordination, and time management that complemented my job search.
 
 I still needed a stable part-time job to support my living expenses.
 
-Towards the end of October 2025, I came across a hiring advertisement for Subway. Honestly, it wasn't the kind of job I had imagined myself doing, but after weeks of searching, I decided to give [...]
+Towards the end of October 2025, I came across a hiring advertisement for Subway. Honestly, it wasn't the kind of job I had imagined myself doing, but after weeks of searching, I decided to give it a try because I needed regular hours and income.
 
-I called the number on the advertisement, was invited for an interview, prepared well, and fortunately, everything went smoothly. After successfully completing my trial shifts, I was selected to [...]
+I called the number on the advertisement, was invited for an interview, prepared well, and fortunately, everything went smoothly. After successfully completing my trial shifts, I was selected to join the team.
 
 The restaurant in Salthill was a brand-new franchise, so I first received my training at the Newcastle branch before moving to the newly opened store.
 
-Ironically, my first job in Ireland turned out to be in a sandwich shop—the one type of role I had initially hoped to avoid. It was also my first time handling meat. I was nervous at first, but[...]
+Ironically, my first job in Ireland turned out to be in a sandwich shop—the one type of role I had initially hoped to avoid. It was also my first time handling meat. I was nervous at first, but the training, clear food-safety procedures, and supportive colleagues helped me adapt quickly. I learned how to work the till, manage customer orders, keep a fast pace during rush hours, and maintain hygiene standards.
 
-Looking back, saying "yes" to an opportunity outside my comfort zone became one of the most important decisions of my journey.
+Looking back, saying "yes" to an opportunity outside my comfort zone became one of the most important decisions of my journey. The job taught me transferable skills—communication, teamwork, punctuality, and the confidence to handle unfamiliar tasks.
 
 ### Advice
 
 Don't reject an opportunity just because it isn't your ideal job.
 
-Your first job doesn't have to define your career—it simply has to help you take your first step. Every experience teaches you something, builds resilience, and opens doors to new opportunities[...]
+Your first job doesn't have to define your career—it simply has to help you take your first step. Every experience teaches you something, builds resilience, and opens doors to new opportunities. Be open to learning on the job, and use each role to develop skills you can take into future positions.
 
 ### Tags
 
@@ -138,15 +138,15 @@ Balancing academics, work, and university life isn't easy—but it's possible.
 
 One of the biggest challenges during my MSc wasn't the coursework itself—it was learning how to balance everything at once.
 
-My course lasted only nine months, which meant assignments, presentations, group projects, and deadlines came one after another. At the same time, I was working part-time at Subway, learning an e[...]
+My course lasted only nine months, which meant assignments, presentations, group projects, and deadlines came one after another. At the same time, I was working part-time at Subway, learning an entirely new set of practical skills in a fast-paced environment while trying to keep up with academic expectations.
 
-The first few weeks at Subway were overwhelming. Everything was new—memorising recipes, understanding food safety procedures, serving customers quickly, handling the till, preparing orders duri[...]
+The first few weeks at Subway were overwhelming. Everything was new—memorising recipes, understanding food safety procedures, serving customers quickly, handling the till, preparing orders during busy shifts, and coordinating with colleagues to keep service smooth.
 
-Coming from a vegetarian background, I had never handled meat before. Initially, I was hesitant and unsure if I would be able to do the job comfortably. But with training, support from my colleag[...]
+Coming from a vegetarian background, I had never handled meat before. Initially, I was hesitant and unsure if I would be able to do the job comfortably. But with training, support from my colleagues, and time, I became more confident in the role and learned to separate personal dietary choices from professional responsibilities.
 
-Outside of work and academics, I also continued my involvement as a Global Student Ambassador whenever events were scheduled and volunteered as a LIFT Ireland Facilitator to strengthen my leaders[...]
+Outside of work and academics, I also continued my involvement as a Global Student Ambassador whenever events were scheduled and volunteered as a LIFT Ireland Facilitator to strengthen my leadership and facilitation skills. Juggling these responsibilities meant I had to be deliberate about planning my week and making trade-offs when necessary.
 
-There were days when lectures were followed by work, assignments had to be completed late at night, and weekends disappeared into deadlines. Finding time for myself wasn't always easy, but I lear[...]
+There were days when lectures were followed by work, assignments had to be completed late at night, and weekends disappeared into deadlines. Finding time for myself wasn't always easy, but I learned to schedule short breaks, set realistic daily goals, and ask for help when I needed it.
 
 Looking back, managing all these responsibilities taught me discipline, resilience, and time management—skills that no classroom alone could have taught me.
 
@@ -179,11 +179,11 @@ Back home, I had friends I had grown up with—people who knew me without any ex
 
 Moving to a new country meant leaving that comfort behind and starting from zero.
 
-In the beginning, it felt strange. Everyone around me was new, and so was I to them. Building friendships wasn't instant. It happened naturally through lectures, group assignments, university events, working at Subway, being a Global Student Ambassador, and facilitating LIFT Ireland sessions.
+In the beginning, it felt strange. Everyone around me was new, and so was I to them. Building friendships wasn't instant. It happened naturally through lectures, group assignments, university events, student societies, and casual conversations over coffee between classes.
 
-Slowly, a few people became more than just classmates or colleagues. They became friends who celebrated small wins, supported each other during assignment deadlines, shared meals after lectures, explored Galway together, and simply made life feel a little less lonely.
+Slowly, a few people became more than just classmates or colleagues. They became friends who celebrated small wins, supported each other during assignment deadlines, shared meals after lectures, explored the city together, and created new memories that made Ireland feel more like home.
 
-What I realised is that making friends as an adult is different. It takes effort, time, and being willing to start conversations even when it feels uncomfortable.
+What I realised is that making friends as adult is different. It takes effort, time, and being willing to start conversations even when it feels uncomfortable.
 
 The friends I have back home will always be irreplaceable, but I'm grateful that Ireland gave me the chance to build another small circle that made this journey memorable.
 
@@ -191,7 +191,7 @@ The friends I have back home will always be irreplaceable, but I'm grateful that
 
 Stay connected with the people you leave behind, but don't close yourself off to the people you meet along the way.
 
-Sometimes a simple "Hi", joining a group project, or accepting an invitation for coffee can be the beginning of a lifelong friendship.
+Sometimes a simple "Hi", joining a group project, or accepting an invitation for coffee can be the beginning of a lifelong friendship. Use tools like video calls, messaging apps, and social media to keep long-distance friendships alive while you invest in new connections locally.
 
 ### Tags
 
