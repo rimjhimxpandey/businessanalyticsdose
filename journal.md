@@ -187,3 +187,40 @@ Focus on communication, mutual understanding, and delivering your best. Your att
 
 ### Tags
 #MastersJourney #GroupProjects #BusinessAnalytics #Teamwork #Leadership #FirstClassHonours
+
+---
+
+## Day 9 | 1 August 2026
+
+### Topic
+Just when I thought the hardest part was over, Semester 2 proved me wrong.
+
+### What I Learned
+
+Finishing Semester 1 with First Class Honours felt like a huge achievement. It reassured me that all the late nights, assignments, balancing work at Subway, and university commitments had been worth it.
+
+But there was one problem.
+
+Getting a 1:1 in Semester 1 wasn't enough—I had to maintain it.
+
+Since I was close to the grade boundary, every assignment, presentation, and exam in Semester 2 suddenly felt even more important. The biggest challenge was still ahead of me: a 30-credit Business Analytics Project that would have a significant impact on my final classification.
+
+By then, I had realised my Semester 1 project group wasn't the right fit. So, for Semester 2, I decided to step out of my comfort zone and form a new team. Fortunately, the new group started on a much better note. Everyone was supportive, understanding, and willing to contribute.
+
+At the same time, the academic workload became much more technical.
+
+Programming modules demanded a different level of effort. Although I came from an engineering background, Python for Business Analytics was completely new to me. There were moments when I questioned whether I could keep up, but skipping lectures was never an option. I attended every class, completed assignments on time, and kept learning one step at a time.
+
+Outside academics, I didn't want to miss opportunities that could help my career. Alongside my studies, I enrolled in the University Employability Award, attended career fairs in both semesters, and made an effort to connect with recruiters and professionals. I didn't know if those conversations would lead anywhere, but I believed every connection was an investment in my future.
+
+Little did I know that Semester 2 was about to test me in ways I hadn't imagined...
+
+### Advice
+
+Sometimes success creates new pressure.
+
+Celebrate your achievements, but don't let them make you complacent. Every semester, every project, and every opportunity is a fresh start.
+
+### Tags
+
+#MastersJourney #Semester2 #BusinessAnalytics #Employability #CareerDevelopment #FirstClassHonours
