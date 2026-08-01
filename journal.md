@@ -65,11 +65,7 @@ The biggest takeaway was that readiness matters: luck helps, but preparation and
 ### Advice
 Don't wait until your savings are running low before you begin.
 
-✔️ Complete your essential documents first.
-✔️ Prepare an Irish-style CV.
-✔️ Apply through company career pages and job portals.
-✔️ Keep an eye on social media and local student groups.
-✔️ Don't hesitate to walk into stores and ask if they're hiring.
+✔️ Complete your essential documents first. ✔️ Prepare an Irish-style CV. ✔️ Apply through company career pages and job portals. ✔️ Keep an eye on social media and local student groups. ✔️ Don't hesitate to walk into stores and ask if they're hiring.
 
 The more places you look, the more opportunities you'll find.
 
@@ -96,8 +92,6 @@ Your first job doesn't have to define your career—it simply has to help you ta
 ### Tags
 #PartTimeJob #Subway #InternationalStudent #CareerJourney #BusinessAnalytics #Ireland
 
----
-
 ## Day 6 | 29 July 2026
 
 ### Topic
@@ -119,8 +113,6 @@ Learn to prioritise, stay organised, and remember to take care of yourself along
 
 ### Tags
 #MastersJourney #TimeManagement #PartTimeJob #InternationalStudent #BusinessAnalytics #StudentLife
-
----
 
 ## Day 7 | 30 July 2026
 
@@ -163,3 +155,35 @@ The memories from a weekend trip, a festive evening with friends, or a meal shar
 
 ### Tags
 #FirstPaycheck #InternationalStudent #Ireland #StudentLife #FinancialIndependence #MastersJourney
+
+## Day 9 | 1 August 2026
+
+### Topic
+A Master's teaches you more than academics—it teaches you how to work with people.
+
+### What I Learned
+When I started my MSc in Business Analytics, I had one goal in mind—to graduate with a First Class Honours (1:1). I knew it wouldn't be easy, especially with a course that lasted only nine months.
+
+The pace was intense. Assignments, projects, presentations, exams, and part-time work all had to fit into the same calendar.
+
+One challenge I didn't expect was group assignments.
+
+Within a very short time after joining the university, we had to form groups of four or five students for almost every module. Since we barely knew each other, most groups were formed randomly.
+
+Although we were all from India, we came from different states, universities, educational backgrounds, and ways of thinking. Everyone had different priorities, working styles, and expectations. Our very first assignment had its fair share of disagreements and misunderstandings.
+
+There were times when I felt not everyone was contributing equally. Instead of letting that affect the quality of the work, I chose to focus on what I could control. If I felt the team was giving 50%, I pushed myself to give 150%.
+
+That didn't mean doing everything alone. It meant communicating, negotiating, dividing responsibilities, resolving conflicts, and making sure we submitted work that we were all proud of.
+
+Those experiences taught me that teamwork isn't about finding perfect teammates—it's about learning how to work with different personalities while keeping the end goal in mind.
+
+Looking back, earning my 1:1 wasn't just about studying hard. It was about staying consistent, taking responsibility, and learning how to collaborate under pressure.
+
+### Advice
+Not every group project will be smooth, and not every teammate will work the way you do.
+
+Focus on communication, mutual understanding, and delivering your best. Your attitude towards teamwork will often matter just as much as your technical skills.
+
+### Tags
+#MastersJourney #GroupProjects #BusinessAnalytics #Teamwork #Leadership #FirstClassHonours
