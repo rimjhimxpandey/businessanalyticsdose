@@ -224,3 +224,46 @@ Celebrate your achievements, but don't let them make you complacent. Every semes
 ### Tags
 
 #MastersJourney #Semester2 #BusinessAnalytics #Employability #CareerDevelopment #FirstClassHonours
+
+---
+
+## Day 10 | 2 August 2026
+
+### Topic
+Christmas break wasn't really a break.
+
+### What I Learned
+
+For many students, the Christmas holidays meant going home, relaxing, and taking a break from university.
+
+For me, it looked a little different.
+
+Since classes were on a break, I increased my working hours at Subway to 40 hours a week. It was the perfect opportunity to earn more, support myself financially, and prepare for the months ahead.
+
+But even though lectures had paused, university hadn't.
+
+Assignments still had deadlines. Group discussions continued. Semester 2 planning had already begun. My goal of graduating with a First Class Honours (1:1) never left my mind.
+
+Some days started with work, ended with assignments, and somewhere in between I'd squeeze in grocery shopping, cooking, laundry, and trying to call home.
+
+Despite the busy schedule, Christmas in Galway became one of my favourite memories. Walking through the Christmas Market, spending time with friends, trying different cafés, and seeing the city decorated for the holidays reminded me that life isn't only about studying and working.
+
+Those small moments helped me recharge before another demanding semester.
+
+I also realised something important during this period.
+
+Balancing life doesn't always mean having free time. Sometimes it simply means making room for the people and moments that make all the hard work worthwhile.
+
+Looking back, Christmas wasn't a break from responsibility.
+
+It was a lesson in managing responsibility while still making memories.
+
+### Advice
+
+Work hard when you have the opportunity, but don't forget to enjoy the little moments along the way.
+
+The degree, the job, and the money all matter—but so do the memories you create while chasing them.
+
+### Tags
+
+#Christmas #InternationalStudent #WorkLifeBalance #StudentLife #MastersJourney
