@@ -398,3 +398,48 @@ Almost every international student has moments of loneliness—they just don't a
 ### Tags
 
 #InternationalStudent #Loneliness #StudentLife #StudyAbroad #MastersJourney #Growth
+
+---
+
+## Day 14 | 06 August 2026
+
+### Topic
+The next chapter: My full-time job search.
+
+### What I Learned
+
+If someone had asked me a year ago what success looked like, I would have said getting into my dream university, finding a part-time job, and graduating with a First Class Honours.
+
+Today, I've achieved those milestones, and I'm incredibly grateful for them.
+
+Now, I'm standing at the beginning of a new journey—the search for my first full-time role.
+
+This time, things feel different.
+
+I'm no longer applying to every opportunity just because I need a job. I have a clearer understanding of the kind of career I want to build. My MSc in Business Analytics, previous experience in Quality Engineering, part-time customer service roles, leadership opportunities, and everything I've learned over the past year have helped me understand my strengths.
+
+That doesn't mean I have everything figured out.
+
+There are days when I question whether I'm doing enough, whether I'm applying to the right roles, or whether I'll find the opportunity that's meant for me. The job market is competitive, and it's easy to compare your timeline with everyone else's.
+
+But I've learned that rushing doesn't always lead to the right destination.
+
+Right now, I'm choosing to slow down—not because I'm giving up, but because I want to move with purpose. I'm refining my CV, strengthening my LinkedIn, preparing for interviews, building projects, and applying thoughtfully instead of blindly.
+
+Every rejection, every application, and every interview is part of the process.
+
+I've trusted the process before, and it has always led me somewhere better than I expected.
+
+Maybe this chapter is asking me to do the same.
+
+### Advice
+
+Your first full-time job isn't just about getting an offer.
+
+It's about finding a role where your skills, values, and ambitions align.
+
+Be patient with yourself. Growth isn't always visible day by day, but consistency has a way of paying off.
+
+### Tags
+
+#CareerJourney #JobSearch #BusinessAnalytics #Growth #MastersJourney #NewBeginnings
