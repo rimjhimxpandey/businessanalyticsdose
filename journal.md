@@ -443,3 +443,54 @@ Be patient with yourself. Growth isn't always visible day by day, but consistenc
 ### Tags
 
 #CareerJourney #JobSearch #BusinessAnalytics #Growth #MastersJourney #NewBeginnings
+
+---
+
+## Day 15 | 07 August 2026
+
+### Topic
+I'm not looking for just any job anymore.
+
+### What I Learned
+
+When I first came to Ireland, my priority was simple—I needed a part-time job.
+
+I applied to different places, attended interviews, walked into stores, checked career pages, and tried whatever opportunity came my way. At that stage, I was mainly looking for a way to support myself while studying.
+
+Today, my situation is different.
+
+After completing my MSc in Business Analytics, having previous experience in Quality Assurance and Automation Testing, working in customer service, taking up university roles, and learning so much throughout my time in Ireland, I have a much clearer idea of what I want to do next.
+
+I'm now looking for a full-time role that actually connects with my skills and the career I want to build.
+
+That has changed the way I approach job applications.
+
+I'm spending more time understanding the job description, looking at what the company actually does, identifying where my experience fits, and tailoring my CV instead of simply applying everywhere.
+
+I've also realised that I don't need to match every single requirement to apply. Sometimes you have most of the skills and the rest can be learned. What matters is understanding the role and being able to explain what you bring to it.
+
+Of course, the process isn't always easy.
+
+There are applications that receive no response, roles where I don't make it to the next stage, and days when it feels like things are moving slower than I expected.
+
+But I'm learning not to measure my progress only by the number of interviews or offers.
+
+Every application is teaching me something—about the market, about employers, and sometimes even about myself.
+
+A year ago, I was searching for my first part-time opportunity in Ireland.
+
+Today, I'm searching for the right first full-time opportunity for my career.
+
+That's progress too.
+
+### Advice
+
+Don't apply just because a job exists.
+
+Understand what you want, know what you bring to the table, and apply with intention.
+
+Your first full-time role doesn't have to be perfect, but it should take you closer to the career you want to build.
+
+### Tags
+
+#JobSearch #GraduateJobs #BusinessAnalytics #CareerJourney #MastersJourney #Ireland
